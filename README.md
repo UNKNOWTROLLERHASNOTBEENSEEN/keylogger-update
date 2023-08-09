@@ -3,3 +3,4 @@ i made 2 keylogger so if you want to use it for testing or fun yea here it is al
 here is my discord username if you are want to talk with me 
 GODOFCHOAS
 update i have upload the keylogger and i have to make my discord username full captial beacause it was wrong so yea sorry guys anyways here it is keylogger 3 i know it sound boring but it is what is it
+UPDATE: i make a new 2 keylogger both of these have same code but it will show the date and the time also keylogger6 will not show many keypress at once so only it will show one by one every keypress so it will not spam in case if you want to not get spam by this keylogger 5 same one but it will spam like for explame this keypress 3 keypress 3 i am not spaming the button but it show so yea i hope you enjoy if you are wondering what are other keylogger well it the same old one yea :) bye
